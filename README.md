@@ -1,3 +1,2 @@
-# cs1336LxPx
 # DO NOT COPY 
 # DO NOT CHEAT
